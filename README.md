@@ -25,4 +25,6 @@ If you're looking to explore everything this darknet marketplace offers, make su
 <a href="http://ys4fenuwwagecir4avgajycoozdmyn2prxbkeq6vngtr7bvbe6pdt6qd.onion"><img src="/illustrations/module.webp" alt="image" style="max-width: 100%;"><a>  
 <a href="http://ys4fenuwwagecir4avgajycoozdmyn2prxbkeq6vngtr7bvbe6pdt6qd.onion"><img src="/illustrations/utility.webp" alt="image" style="max-width: 100%;"><a>
 
-Update:  Monday 04 August 2025
+
+
+Update:  Wednesday 13 August 2025 TOR Link updates
