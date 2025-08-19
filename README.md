@@ -27,4 +27,6 @@ If you're looking to explore everything this darknet marketplace offers, make su
 
 
 
-Update:  Wednesday 13 August 2025 TOR Link updates
+
+
+Update:  19.08.2025
