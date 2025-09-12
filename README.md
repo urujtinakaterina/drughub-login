@@ -31,4 +31,6 @@ If you're looking to explore everything this darknet marketplace offers, make su
 
 
 
-Update:  Saturday 23 August 2025
+
+
+Update:  09/12/2025
