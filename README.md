@@ -35,4 +35,6 @@ If you're looking to explore everything this darknet marketplace offers, make su
 
 
 
-Update:  14.09.2025 url is now clickable and functioning
+
+
+Update:  09/18/2025
